@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @bellamae41712, but you can call me Issy for short
+- 👀 I’m interested in making my own websites and games
+- 🌱 I’m currently learning basic coding and hopfully more 
+- 📫 How to reach me: Through discord (bellazaqueen) or Email (bellamae41712@gmail.com)!
+- 😄 Pronouns: She/They
+- ⚡ Fun fact: ¡Puedo hablar un poco de español! (i can speak a little spanish!)
